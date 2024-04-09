@@ -13,7 +13,7 @@ a una atención profunda sobre el transcurrir del viento y del tiempo.
 Que lo disfruten!  
 https://jennitza.bandcamp.com/album/n-n  
 https://open.spotify.com/album/7fwlG7...  
-https://www.youtube.com/watch?v=w1V7BPHqh6w&t=105s&ab_channel=Jennitza 
+https://www.youtube.com/watch?v=Pt37MrS9xEQ&list=PL4jsrL5eujnJUdmGVcrzwsZSasyIXVD3A&ab_channel=Jennitza 
 
 
 Gracias por compartir! 
